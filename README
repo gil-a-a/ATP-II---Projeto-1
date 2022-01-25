@@ -1,0 +1,1 @@
+É só seguir as instruções do programa, quando vc rodar :thumbsup:
